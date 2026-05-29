@@ -1,0 +1,1 @@
+do not use it much, use eww.txt cuz there is Open Source, and do not spam reanimate button, do not spam krystal dance v3 or you can has small lags, if you reanimate then die, after reanimate again, is gonna be not FE then
